@@ -6,7 +6,7 @@
 lumi ノ haru ノ dove   ✦   tkn !!
   
 20yo  c-did sys  intersex boygirl
-gaybian  doveboy  usually afk
+gaybian  doveboy  
 
 we  love  marvel  and  minecraft    
 xmen  hannibal  TMA  TSHD  JJK
